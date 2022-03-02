@@ -1,1 +1,0 @@
-# MStrachecki.github.io
